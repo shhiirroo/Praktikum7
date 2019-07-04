@@ -1,2 +1,2 @@
 # Praktikum7
-YusrilIzzulhaq-TeguhSyahwana
+YusrilIzzulhaq-TeguhSyahwana-DianPratiwi
